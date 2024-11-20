@@ -1,4 +1,7 @@
 # IBLIS
+
 BillionsOfCursesOnIblis
 UniversalRootCauseOfAllSinsNoMercy
 WhatAShitestCreationsAmongsAllTheCreationThatIblisExistanceIsIllegal Belongs DeepFreeze 
+
+MostPatheticCreationThatMostTorcherByIBLISMakeItTotalForgetCompletelyOverAndOverAgain
