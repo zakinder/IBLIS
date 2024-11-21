@@ -5,3 +5,5 @@ UniversalRootCauseOfAllSinsNoMercy
 WhatAShitestCreationsAmongsAllTheCreationThatIblisExistanceIsIllegal Belongs DeepFreeze 
 
 MostPatheticCreationThatMostTorcherByIBLISMakeItTotalForgetCompletelyOverAndOverAgain
+
+IBLIS MEANING SPIT ON IBLIS.
