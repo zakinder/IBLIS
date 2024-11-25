@@ -1,5 +1,8 @@
 # IBLIS
 
+IBLIS TALENT : WAS POETRY 
+
+
 BillionsOfCursesOnIblis
 UniversalRootCauseOfAllSinsNoMercy
 WhatAShitestCreationsAmongsAllTheCreationThatIblisExistanceIsIllegal Belongs DeepFreeze 
